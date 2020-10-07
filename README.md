@@ -1,1 +1,1 @@
-# ru
+# amaaz.github.io
